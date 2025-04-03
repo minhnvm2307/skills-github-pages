@@ -1,4 +1,3 @@
-# Nguyễn Văn Minh
 ### AI Engineering Student | Fitness Enthusiast | Lifelong Learner
 
 ## About Me
